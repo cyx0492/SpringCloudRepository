@@ -1,0 +1,1 @@
+never bow to the destiny!
